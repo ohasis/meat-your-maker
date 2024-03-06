@@ -12,4 +12,5 @@ in the dining halls on campus. We conducted a naturalistic observational study, 
 
 ### Driving Question
 
-The driving question of this project is: how can the message of zero waste, waste reduction, and reusability be marketed and branded in a way that encourages students to be more mindful of their environmental impact?
+How does communicating the importance of food waste reduction within Housing and Dining Services (HDH) dining halls translate into mindful student behaviors? 
+How do current HDH policies and practices promote or detract from this message?
